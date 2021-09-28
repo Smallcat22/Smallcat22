@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Smallcat22
-- 👀 I’m interested in making games in flowlab
+- 👀 I’m interested in making games in flowlab, lego worlds and trailmakers
 - 🌱 I’m currently learning make my game better
 - 💞️ I’m looking to collaborate on things such as flowlab scratch
 - 📫 How to reach me gmail therealcatmaster12345@gmail.com
